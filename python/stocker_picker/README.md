@@ -1,0 +1,1 @@
+no money to buy all so stop development
